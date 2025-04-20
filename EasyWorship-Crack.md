@@ -24,4 +24,4 @@ EasyWorship alternative
 
 EasyWorship latest version
 
-🌍😍👉 https://tinyurl.com/3wvzvwh8?ef65
+🌍😍👉 https://tinyurl.com/3wvzvwh8?ef64
